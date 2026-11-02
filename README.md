@@ -1,4 +1,4 @@
 
-bruh leaning english and cpp
+bruh learning english and cpp
 
 lovepythonbutdislikepython
